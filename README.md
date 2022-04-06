@@ -7,4 +7,5 @@
 # Buenas!!
 ## Soy **Guada** , tengo 20 años, ingrese a la facu en 2020 y sufri bastante la cursada virtual je (no me gusto nada no poder socializar IRL). Tengo muchas expectativas con respecto a pdep y tambien muchas ganas de aprender;) 
 
-![Bye!!](https://www.pinterest.es/pin/546131892316540233/)
+## Bye!! 
+:smiling_face_with_three_hearts: 
