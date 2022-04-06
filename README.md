@@ -2,6 +2,6 @@
 
 ## Estudiante: _Maria Guadalupe  Fernandez_
 
-![mi foto](Fotoguada.jpeg)
+![mi foto](Foto guada.jpeg)
 
 Seguí los pasos del doc [acá](https://docs.google.com/document/d/e/2PACX-1vQkogtG88cmwEIXEuff291urSyrZUYHikLIoRTspUodvIg5OoaUJTi8n0vqPJ3XUSN65sqJALTBizeB/pub).
